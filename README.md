@@ -10,4 +10,4 @@ I primarily do graphic design for SparkMask when I am bored. And I also take sup
 But outside of SparkMask I like to add some humor to some things that I say, I like to talk to friends and better yet I like designing stuff for Blumemail (again) sometimes video editing for Blumemail (i am the worst video editor)
 
 Hope you liked my introduction!
-Link In Bio: https://www.bio.box/pixelbot
+My website https://iampixelbot.xyz
